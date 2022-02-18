@@ -4,11 +4,10 @@ and Sarah Parker
 
 One day Sarah
 Got a message from GOD
-To make a SACRIFICE
+He said "the animatronic characters do get a bit quirky at night"
 
-God said "Isaac is your only child,
-SACRIFICE HIM"
+Vanessa said "Freddy, you're supposed to be on lockdown"
 
-Sarah grabbed a knife from the kitchen
+Freddy Fazbear said "But Vanessa, I'm a MATERIAL GWORL"
 
 and murdered her son, Isaac
